@@ -14,7 +14,7 @@ My research focuses on the interactions of [atmospheric aerosols](https://www.pn
 
 I was born in Tokyo, Japan and moved to Canada at an early age, eventually growing up in St. John's, Newfoundland whose climate gave me an appreciation of the interactions between the atmosphere, ocean, and ice in the North Atlantic and of a nice, snow-chilled beer. 
 
-I currently serve as the Postdoc Trustee of [United Automobile, Aerospace and Agricultural Workers Local 4121](https://www.uaw4121.org/) and was previously Postdoc Recording Secretary. I also served as the President of the University of Toronto Graduate Environmental Student's Association. 
+I currently serve as the Postdoctoral Scholar Head Steward of [United Automobile, Aerospace and Agricultural Workers Local 4121](https://www.uaw4121.org/) and was previously Postdoc Recording Secretary. I also sit on the Steering Committee of the [Geoengineering Model Intercomparison Project (GeoMIP)](https://climate.envsci.rutgers.edu/GeoMIP/) and previously served as President of the University of Toronto Graduate Environmental Student's Association. 
 
 # Research
 ---
